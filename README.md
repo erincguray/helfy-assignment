@@ -1,0 +1,1 @@
+Greetings I am Erinc. Top Slider, Testimonial slider, footer and Fetures tabs, Responsiveness are unfinished. Thanks for your consideration. Looking forward to hear from you.
